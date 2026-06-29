@@ -1,4 +1,4 @@
-
+advanced Scripts for dandy's world offers the most advanced dandy's world Script, with unlimited stamina and private server access. Perfect for
 
 
 
